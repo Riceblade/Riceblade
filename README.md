@@ -1,2 +1,2 @@
 - 👋 Hello, I’m Riceblades11!
-- 📫 How to reach me Rice#0404
+- 📫 How to reach me: Rice#0404
